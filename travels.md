@@ -1,0 +1,1 @@
+Puerto Rico was a lot of fun and speaking spanish definitely helps.
